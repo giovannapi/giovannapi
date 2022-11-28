@@ -1,5 +1,5 @@
-- 👋 olá meu nome é @giovannapi
+- 👋 olá meu nome é Giovanna Piaia 
 - 👍 meu email de contato é giovanna.piaia@escola.pr.gov.br
-- 👀 eu estou interessada em aprender a progamar novas linguagens.
-- 🌱 eu estou aprendendo a progamar recentemente a linguagem de javaScript e Scratch 
+- 👀 tenho 15 anos <3
+- 🌱 eu estou aprendendo a progamar recentemente um site 
 - 💞️ insta: giovannapiaiaa
